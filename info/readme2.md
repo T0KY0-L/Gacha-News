@@ -1,0 +1,1 @@
+Este é um segundo arquivo falando sobre o gacha news
